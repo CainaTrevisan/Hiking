@@ -17,3 +17,28 @@ https://pt.wikiloc.com/trilhas-trekking/iap-pico-rochedinho-cachoeira-dos-marumb
 
 * Salto Saci
 https://pt.wikiloc.com/trilhas-trekking/salto-saci-65951873
+
+# Guigas
+* Pão de Loth + Morro do Corvo + Anhangava
+https://pt.wikiloc.com/trilhas-trekking/travessia-anhangava-corvo-e-pico-pao-de-loth-78674405
+
+* Itapiroca
+https://pt.wikiloc.com/trilhas-trekking/pico-itapiroca-conquista-a-partir-da-fazenda-pico-parana-11825721
+
+* Mãe Catira + Morro do Sete
+https://pt.wikiloc.com/trilhas-trekking/mae-catira-morro-do-sete-com-retorno-pelo-rio-29173479
+https://pt.wikiloc.com/trilhas-montanhismo/mae-catira-x-morro-sete-67803034
+
+* Camapuã + Tucum + Pedra Branca
+https://pt.wikiloc.com/trilhas-trekking/picos-camapua-e-tucum-parque-estadual-pico-do-parana-campina-grande-do-sul-pr-br-83270844
+https://pt.wikiloc.com/trilhas-trekking/camapua-tucum-pedra-branca-41592738
+https://pt.wikiloc.com/trilhas-trekking/pedra-branca-do-ibitiraquire-via-crista-descampada-82752326
+
+* Capivari Grande
+* https://pt.wikiloc.com/trilhas-montanhismo/morro-capivari-grande-34746243
+
+* Capivari Mirim + Capivari Médio
+https://pt.wikiloc.com/trilhas-montanhismo/picos-capivari-mirim-e-medio-23304461
+
+* Morro dos Perdidos
+https://pt.wikiloc.com/trilhas-trekking/morro-dos-perdidos-tijucas-do-sul-20995706
