@@ -1,4 +1,4 @@
-# Trilhas planas (fáceis)
+# Trilhas planas
 * Invernada da Serra\
 https://pt.wikiloc.com/trilhas-trekking/invernada-da-serra-5191503
 
