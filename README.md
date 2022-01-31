@@ -1,4 +1,4 @@
-# Trilhas planas
+# Trilhas planas (fáceis)
 * Invernada da Serra\
 https://pt.wikiloc.com/trilhas-trekking/invernada-da-serra-5191503
 
@@ -18,7 +18,7 @@ https://pt.wikiloc.com/trilhas-trekking/iap-pico-rochedinho-cachoeira-dos-marumb
 * Salto Saci\
 https://pt.wikiloc.com/trilhas-trekking/salto-saci-65951873
 
-# Guigas
+# Morros
 
 * Capivari Mirim + Capivari Médio\
 https://pt.wikiloc.com/trilhas-montanhismo/picos-capivari-mirim-e-medio-23304461
