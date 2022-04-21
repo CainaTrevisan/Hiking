@@ -56,3 +56,6 @@ https://pt.wikiloc.com/trilhas-montanhismo/pedra-da-gavea-parque-nacional-da-tij
 
 * Urca\
 https://pt.wikiloc.com/trilhas-trekking/morro-da-urca-43371858
+
+* Dois Irmãos\
+https://pt.wikiloc.com/trilhas-trekking/trilha-morro-dois-irmaos-vidigal-rj-96674423
