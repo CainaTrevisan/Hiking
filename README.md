@@ -43,3 +43,16 @@ https://pt.wikiloc.com/trilhas-trekking/travessia-anhangava-corvo-e-pico-pao-de-
 https://pt.wikiloc.com/trilhas-trekking/picos-camapua-e-tucum-parque-estadual-pico-do-parana-campina-grande-do-sul-pr-br-83270844 \
 https://pt.wikiloc.com/trilhas-trekking/camapua-tucum-pedra-branca-41592738 \
 https://pt.wikiloc.com/trilhas-trekking/pedra-branca-do-ibitiraquire-via-crista-descampada-82752326
+
+# Rio de Janeiro
+* Pedra da Tartaruga, Praia do Perigoso, Praia do Meio e Pedra do Telégrafo\
+https://pt.wikiloc.com/trilhas-trekking/pedra-da-tartaruga-praia-do-perigoso-praia-do-meio-e-pedra-do-telegrafo-guaratiba-rio-de-janeiro-rj-57894564
+
+* Corcovado\
+https://pt.wikiloc.com/trilhas-trekking/corcovado-21o-dia-da-transcarioca-21482788
+
+* Gávea\
+https://pt.wikiloc.com/trilhas-montanhismo/pedra-da-gavea-parque-nacional-da-tijuca-35351306
+
+* Urca\
+https://pt.wikiloc.com/trilhas-trekking/morro-da-urca-43371858
