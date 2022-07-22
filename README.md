@@ -8,6 +8,11 @@ https://pt.wikiloc.com/trilhas-trekking/trilha-da-conceicao-3941274
 * Circuito Roça Nova\
 https://pt.wikiloc.com/trilhas-trekking/circuito-roca-nova-5346809
 
+* Picada São Cristóvão\
+https://pt.wikiloc.com/trilhas-trekking/circuito-janela-da-cotia-janela-da-conceicao-picada-do-cristovao-79209364 \
+https://pt.wikiloc.com/trilhas-trekking/picada-do-cristovao-janela-da-conceicao-93073429 \
+https://pt.wikiloc.com/trilhas-trekking/picada-sao-cristovao-conceicao-51150786
+
 # Cachoeiras
 * Salto dos Macacos\
 https://pt.wikiloc.com/trilhas-trekking/cachoeira-salto-dos-macacos-marumbi-35203601
