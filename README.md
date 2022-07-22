@@ -31,9 +31,13 @@ https://pt.wikiloc.com/trilhas-montanhismo/picos-capivari-mirim-e-medio-23304461
 * Itapiroca\
 https://pt.wikiloc.com/trilhas-trekking/pico-itapiroca-conquista-a-partir-da-fazenda-pico-parana-11825721
 
-* Mãe Catira + Morro do Sete\
+* Pequeno Polegar\
+https://pt.wikiloc.com/trilhas-montanhismo/morro-pequeno-polegar-farinha-seca-pr-7294704
+
+* Mãe Catira + Morro do Sete + Pequeno Polegar\
 https://pt.wikiloc.com/trilhas-trekking/mae-catira-morro-do-sete-com-retorno-pelo-rio-29173479 \
-https://pt.wikiloc.com/trilhas-montanhismo/mae-catira-x-morro-sete-67803034
+https://pt.wikiloc.com/trilhas-montanhismo/mae-catira-x-morro-sete-67803034 \
+https://pt.wikiloc.com/trilhas-trekking/morro-pequeno-polegar-morro-mae-catira-morro-do-7-67940816
 
 * Capivari Grande\
 https://pt.wikiloc.com/trilhas-montanhismo/morro-capivari-grande-34746243
@@ -48,6 +52,13 @@ https://pt.wikiloc.com/trilhas-trekking/travessia-anhangava-corvo-e-pico-pao-de-
 https://pt.wikiloc.com/trilhas-trekking/picos-camapua-e-tucum-parque-estadual-pico-do-parana-campina-grande-do-sul-pr-br-83270844 \
 https://pt.wikiloc.com/trilhas-trekking/camapua-tucum-pedra-branca-41592738 \
 https://pt.wikiloc.com/trilhas-trekking/pedra-branca-do-ibitiraquire-via-crista-descampada-82752326
+
+* Farinha Seca \
+Pelo Polegar: \
+https://pt.wikiloc.com/trilhas-trekking/morro-farinha-seca-57227678 \
+Pelo Rio: \
+https://pt.wikiloc.com/trilhas-montanhismo/circuito-farinha-seca-morro-mae-catira-morro-do-sete-morro-pequeno-polegar-rio-do-meio-40166074#wp-40166097 \
+https://pt.wikiloc.com/trilhas-trekking/travessia-serra-da-farinha-seca-ataque-mae-catira-balanca-65575760
 
 * Pico X + Pico Primeiro de Maio + Pico do Pilão \
 https://pt.wikiloc.com/trilhas-montanhismo/pico-primeiro-de-maio-pico-x-e-pico-pilao-de-pedra-53282776
