@@ -49,6 +49,9 @@ https://pt.wikiloc.com/trilhas-trekking/picos-camapua-e-tucum-parque-estadual-pi
 https://pt.wikiloc.com/trilhas-trekking/camapua-tucum-pedra-branca-41592738 \
 https://pt.wikiloc.com/trilhas-trekking/pedra-branca-do-ibitiraquire-via-crista-descampada-82752326
 
+* Pico X + Pico Primeiro de Maio + Pico do Pilão \
+https://pt.wikiloc.com/trilhas-montanhismo/pico-primeiro-de-maio-pico-x-e-pico-pilao-de-pedra-53282776
+
 # Rio de Janeiro
 * Pedra da Tartaruga, Praia do Perigoso, Praia do Meio e Pedra do Telégrafo\
 https://pt.wikiloc.com/trilhas-trekking/pedra-da-tartaruga-praia-do-perigoso-praia-do-meio-e-pedra-do-telegrafo-guaratiba-rio-de-janeiro-rj-57894564
